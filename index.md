@@ -8,7 +8,8 @@ Luzie Krause (gespielt von Žaneta Fuchsová ) ist 6 Jahre alt und kommt in die 
 * dickköpfig
 * lustig
 * fair
-* redegewand
+* redegewandt
 
 ## Zitat
 Friedrich & Friedrich, wo seit ihr?
+
