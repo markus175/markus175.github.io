@@ -13,3 +13,5 @@ Luzie Krause (gespielt von Žaneta Fuchsová ) ist 6 Jahre alt und kommt in die 
 ## Zitat
 Friedrich & Friedrich, wo seit ihr?
 
+<img src="https://bilder.fernsehserien.de/gfx/bv/luzie-der-schrecken-der-strasse-w-1455.jpg.webp"/>
+ 
