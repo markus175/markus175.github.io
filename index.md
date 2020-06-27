@@ -15,3 +15,5 @@ Friedrich & Friedrich, wo seit ihr?
 Neuer Anlauf mit feature_quote2
 
 
+<img src="https://bilder.fernsehserien.de/gfx/bv/luzie-der-schrecken-der-strasse-w-1455.jpg.webp"/>
+ 
