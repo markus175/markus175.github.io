@@ -12,4 +12,6 @@ Luzie Krause (gespielt von Žaneta Fuchsová ) ist 6 Jahre alt und kommt in die 
 
 ## Zitat
 Friedrich & Friedrich, wo seit ihr?
+Neuer Anlauf mit feature_quote2
+
 
